@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @louwis-alfred
+- 👀 I’m interested in Programming and Economics
+- 🌱 I’m currently doing: Web development, Macroeconomic analysis, Carry Trade
+- 📫 How to reach me: nabayan.louwisalfred.08142002@gmail.com
